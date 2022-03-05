@@ -7,5 +7,4 @@
 
 视频 test  ----------------- test
 
-”获取更多资源加🐧3107544520 或者🛰️mellowang0912”
-<p style='color:red'>This is some red text.</p>
+<p style='color:pink'>获取更多资源加🐧3107544520 或者🛰️mellowang0912</p>
