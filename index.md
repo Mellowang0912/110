@@ -9,4 +9,4 @@
 
 <p style='color:pink'>获取更多资源加🐧3107544520 或者🛰️mellowang0912</p>
 
-[这是图片](https://github.com/Mellowang0912/110/blob/gh-pages/IMG_20220226_160942.jpg)
+(https://github.com/Mellowang0912/110/blob/gh-pages/IMG_20220226_160942.jpg)
