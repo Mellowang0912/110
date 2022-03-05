@@ -9,4 +9,4 @@
 
 <p style='color:pink'>获取更多资源加🐧3107544520 或者🛰️mellowang0912</p>
 
-(https://github.com/Mellowang0912/110/blob/gh-pages/IMG_20220226_160942.jpg)
+- ![#1589F0](https://placehold.it/15/1589F0/000000?text=+) `#1589F0`
