@@ -9,4 +9,4 @@
 
 <p style='color:pink'>获取更多资源加🐧3107544520 或者🛰️mellowang0912</p>
 
-- ![#1589F0](https://github.com/Mellowang0912/110/issues/1#issue-1160407874)
+- ![#1589F0](http://mellowang.test.upcdn.net/2021-12-19-224903156.mp4)
