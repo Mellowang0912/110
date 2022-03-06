@@ -10,6 +10,6 @@
 
 <p style='color:pink'>获取更多资源加🐧3107544520 或者🛰️mellowang0912
 
-![#makabaka](https://github.com/Mellowang0912/110/blob/gh-pages/4dacb54539fafc2ac10b99646fba77d.jpg)
-![#makaaa](https://github.com/Mellowang0912/110/blob/gh-pages/9b5774e5b1b916f355d13ee5d1fba09.jpg)
+![#makabaka](https://github.com/Mellowang0912/110/blob/gh-pages/4dacb54539fafc2ac10b99646fba77d.jpg?raw=true)
+![#makaaa](https://github.com/Mellowang0912/110/blob/gh-pages/9b5774e5b1b916f355d13ee5d1fba09.jpg?raw=true)
 <img src="https://user-images.githubusercontent.com/73633146/156897512-81d1654f-8503-411c-b795-d385edb8acf4.jpg" >
