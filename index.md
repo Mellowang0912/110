@@ -5,11 +5,10 @@
 
  <img src="https://user-images.githubusercontent.com/73633146/157055958-2d3fa302-4446-4ba3-af05-68654f7bc633.png" while="99" height="80" >
 
-· →[瑞克和莫蒂第一季第一集](http://kitt0912.test.upcdn.net/%E7%91%9E%E5%85%8B%E5%92%8C%E8%8E%AB%E8%92%82.Rick.and.Morty.S01E01.mp4)😀😀😀😀😀
+👉 [瑞克和莫蒂第一季第一集👈](http://kitt0912.test.upcdn.net/%E7%91%9E%E5%85%8B%E5%92%8C%E8%8E%AB%E8%92%82.Rick.and.Morty.S01E01.mp4)😀😀😀😀😀
 
-· →[瑞克和莫蒂第一季第二集](http://kitt0912.test.upcdn.net/%E7%91%9E%E5%85%8B%E5%92%8C%E8%8E%AB%E8%92%82.Rick.and.Morty.S01E02.%E5%8F%8C%E8%AF%AD%E5%AD%97%E5%B9%95.1080p.BluRay.x264-UnIon%E5%AD%97%E5%B9%95%E7%BB%84.mp4)😀😀😀😀😀
+👉 [瑞克和莫蒂第一季第二集👈](http://kitt0912.test.upcdn.net/%E7%91%9E%E5%85%8B%E5%92%8C%E8%8E%AB%E8%92%82.Rick.and.Morty.S01E02.%E5%8F%8C%E8%AF%AD%E5%AD%97%E5%B9%95.1080p.BluRay.x264-UnIon%E5%AD%97%E5%B9%95%E7%BB%84.mp4)😀😀😀😀😀
 
-● [山顶黑毒蛇](http://mellowang.test.upcdn.net/%E5%B1%B1%E9%A0%82%E9%BB%91%E6%AF%92%E8%9B%87.mp4)
 
 
 
