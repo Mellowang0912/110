@@ -4,9 +4,6 @@
 下面是电影点击就可以看目前还没有写定位播放的代码所以看一半退出了就得重新开始😜打赏一下不一定会更新<br/>
 
  <img src="https://user-images.githubusercontent.com/73633146/157055958-2d3fa302-4446-4ba3-af05-68654f7bc633.png" while="99" height="80" >
- 
-<?xml version="1.0" encoding="utf-8"?>
-<manifest package="com.shuyu.gsyvideoplayer.armv5" />
 
 👉 [瑞克和莫蒂第一季第一集👈](http://kitt0912.test.upcdn.net/%E7%91%9E%E5%85%8B%E5%92%8C%E8%8E%AB%E8%92%82.Rick.and.Morty.S01E01.mp4)😀😀😀😀😀
 
