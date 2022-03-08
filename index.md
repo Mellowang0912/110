@@ -7,6 +7,7 @@
 
 👉 [瑞克和莫蒂第一季第一集👈](http://kitt0912.test.upcdn.net/%E7%91%9E%E5%85%8B%E5%92%8C%E8%8E%AB%E8%92%82.Rick.and.Morty.S01E01.mp4)😀😀😀😀😀
 
+👉 [瑞克和莫蒂第一季第二集👈](http://kitt0912.test.upcdn.net/%E7%91%9E%E5%85%8B%E5%92%8C%E8%8E%AB%E8%92%82S01E02.mp4)😀😀😀😀😀
 
 <p style='color:pink'>获取更多资源加🛰️mellowang0912或者🐧3107544520<br/>
 <img src="https://user-images.githubusercontent.com/73633146/156906094-86d999c0-58e4-405a-a724-4aaaeeb58b69.jpg" while="150" height="150"> <img src="https://user-images.githubusercontent.com/73633146/156906100-40e786ae-f74e-43a3-8c24-565b83fe588b.jpg" while="150" height="150"><br/>
