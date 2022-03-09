@@ -2,6 +2,7 @@
 
 ### 这个链接不定时更新电影没事干看看 下面有加好友方式，要看什么片加我 微信打开就扫微信 QQ打开就扫QQ
 ***下面是电影点击就可以看目前还没有写定位播放的代码所以看一半退出了就得重新开始😜打赏一下不一定会更新<br/>***
+[开端第一集](http://kitt0912.test.upcdn.net/%E5%BC%80%E7%AB%AF_S01E01.mp4)
 
 <img src="https://user-images.githubusercontent.com/73633146/157352320-7d7f22f6-a405-404c-a890-7305265291d1.jpg" while="100" height="80" >
 
